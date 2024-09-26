@@ -1,1 +1,1 @@
-# Priprema PBL projekata
+# Priprema praksi
