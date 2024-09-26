@@ -1,1 +1,1 @@
-# Analiza i diseminacija rezultata PBL projekata
+# Promocija i selekcija učesnika za prakse
