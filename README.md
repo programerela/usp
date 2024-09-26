@@ -1,1 +1,1 @@
-# Analiziranje postojećeg stanja kapaciteta partnerskih organizacija
+# Analiza postojećeg stanja kapaciteta partnerskih organizacija
