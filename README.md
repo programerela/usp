@@ -1,1 +1,1 @@
-# Analiza i diseminacija rezultata kooperativnih programa
+# Reklamiranje putem kanala promocije
