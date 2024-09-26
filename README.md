@@ -1,1 +1,1 @@
-# Quality Plan
+# Plan kvaliteta
