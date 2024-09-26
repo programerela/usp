@@ -1,1 +1,1 @@
-# Analiza i diseminacija rezultata praksi
+# Promocija i selekcija učesnika za kooperativne programe
