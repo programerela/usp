@@ -1,1 +1,1 @@
-# Implementacija PBL projekata
+# Implementacija praksi
