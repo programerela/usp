@@ -1,1 +1,1 @@
-# Promocija i selekcija učesnika za prakse
+# Analiza i diseminacija rezultata praksi
