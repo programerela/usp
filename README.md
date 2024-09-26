@@ -1,1 +1,1 @@
-# Priprema praksi
+# Priprema kooperativnih programa
