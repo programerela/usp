@@ -1,1 +1,1 @@
-# Implementacija praksi
+# Implementacija kooperativnih programa
