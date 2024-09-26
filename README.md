@@ -1,1 +1,1 @@
-# Analiza postojećeg stanja kapaciteta partnerskih organizacija
+# Organizovanje studentskih poseta
