@@ -1,1 +1,1 @@
-# Promocija i selekcija učesnika za kooperativne programe
+# Analiza i diseminacija rezultata kooperativnih programa
